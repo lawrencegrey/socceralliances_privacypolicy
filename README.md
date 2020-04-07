@@ -1,0 +1,2 @@
+# socceralliances_privacypolicy
+Privacy Policies
